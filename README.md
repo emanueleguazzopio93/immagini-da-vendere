@@ -1,1 +1,1 @@
-# immagini-da-vendere
+VENDOR IMMAGINI DI MIA CREAZIONE. PER ACQUISTARE CONTATTARE TRAMITE pioguazzo@gmail.com il pagamento avviene tramite IBAN POSTEPAY EVOLUTION.
